@@ -6,7 +6,7 @@
 ooooooooooooooooo
 
 
-G   I  T   어렵다
+G   I   T   어렵다
 
 
 ooooooooooooooooo
